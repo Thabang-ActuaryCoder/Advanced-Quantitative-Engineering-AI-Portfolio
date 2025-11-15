@@ -66,6 +66,7 @@ Planned sectors include:
 ## Contact
 
 Feel free to reach out for collaboration, research discussions or professional opportunities.
+
 📧 : baloyibongani1@gmail.com
 
 🔗 LinkedIn: https://www.linkedin.com/in/baloyi-thabang-bongani-junior-2622b0286/
